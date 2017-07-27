@@ -1,1 +1,1 @@
-# jmao-poe.github.io
+# Principles of Economics
